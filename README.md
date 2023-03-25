@@ -24,7 +24,7 @@ Other :
 --100% Safe and Working!
 VirusTotal ScreenShot
 
-https://camo.githubusercontent.com/594ef1e480c434091acf8e12a376263ba07352f8fe73d413251a6d1c75250763/68747470733a2f2f692e696d6775722e636f6d2f555843623767662e706e67
+https://cdn.discordapp.com/attachments/1089192414083825676/1089198566842585098/crea21.png
 
 Invite :
 https://discord.gg/ArXn3fuCxD
